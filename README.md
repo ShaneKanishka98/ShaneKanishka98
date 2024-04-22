@@ -10,7 +10,9 @@
 💞️ I’m looking to collaborate on projects related to web development, data science, and AI.
 
 
-📫 How to reach me: You can reach me via email at [shanekanishka1998@gmail.com] or connect with me on LinkedIn [https://www.linkedin.com/in/shane-kanishka/)].
+📫 How to reach me: You can reach me via email at [shanekanishka1998@gmail.com] 
+                                  or 
+  connect with me on LinkedIn [https://www.linkedin.com/in/shane-kanishka/]
 
 
 😄 Pronouns: He/Him
