@@ -12,7 +12,7 @@
 
 📫 How to reach me: 
 
-  ~ You can reach me via email at [shanekanishka1998@gmail.com] 
+  ~ You can reach me via email at [shanekanishka98@gmail.com] 
 
 
   ~ Connect with me on LinkedIn [https://www.linkedin.com/in/shane-kanishka/]
